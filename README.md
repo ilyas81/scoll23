@@ -1,0 +1,2 @@
+# scoll23
+Teknolojia
